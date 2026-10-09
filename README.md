@@ -1,5 +1,5 @@
 
-# ShenXing神行加速机场官方地址(2026年10月8日更新)
+# ShenXing神行加速机场官方地址(2026年10月9日更新)
 ShenXing神行加速机场官网地址</br>
 ✅只支持客户端</br>
 官方地址：[8538vip.shenxingaff.com](https://download.shenxingjstt.xyz/#/?code=YpE2akcR)</br>
