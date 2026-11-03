@@ -1,8 +1,10 @@
+🇨🇳 中文 | 🇺🇸 [English](README_EN.md) | 🇷🇺 
+[Русский](README_RU.md) | 🇮🇷 [فارسی](README_FA.md)
 
 # ShenXing神行加速机场官方地址(2026年11月2日更新)
 ShenXing神行加速机场官网地址</br>
 ✅只支持客户端</br>
-官方地址：[8538vip.shenxingaff.com](https://download.shenxingjstt.xyz/#/?code=YpE2akcR)</br>
+官方地址：[8538vip.shenxingaff.com](https://to.iix.im/sx01)</br>
 
 2026最新好用的机场推荐与节点分享：[https://github.com/jdnei/JiChangTuiJian](https://github.com/jdnei/JiChangTuiJian)</br>
 ## Telegram VPN 机场福利社 #AD
