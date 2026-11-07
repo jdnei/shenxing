@@ -1,7 +1,7 @@
 🇨🇳 中文 | 🇺🇸 [English](README_EN.md) | 🇷🇺 
 [Русский](README_RU.md) | 🇮🇷 [فارسی](README_FA.md)
 
-# ShenXing神行加速机场官方地址(2026年11月6日更新)
+# ShenXing神行加速机场官方地址(2026年11月7日更新)
 ShenXing神行加速机场官网地址</br>
 ✅只支持客户端</br>
 官方地址：[8538vip.shenxingaff.com](https://to.iix.im/sx01)</br>
