@@ -1,6 +1,6 @@
 🇨🇳 [中文](README.md) | 🇺🇸 English | 🇷🇺 [Русский](README_RU.md) | 🇮🇷 [فارسی](README_FA.md)
 
-# ShenXing VPN Official Website (Updated November 7, 2026)
+# ShenXing VPN Official Website (Updated November 8, 2026)
 
 ShenXing VPN Official Website<br>
 ✅ Only supports the official client application<br>
