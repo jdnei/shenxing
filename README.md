@@ -4,6 +4,8 @@
 # ShenXing神行加速机场官方地址(2026年11月15日更新)
 ShenXing神行加速机场官网地址</br>
 ✅只支持客户端</br>
+
+最新地址：[8538vip.shenxingaff.com](https://to.iix.im/sx01)</br>
 官方地址：[8538vip.shenxingaff.com](https://to.iix.im/sx01)</br>
 
 2026最新好用的机场推荐与节点分享：[https://github.com/jdnei/JiChangTuiJian](https://github.com/jdnei/JiChangTuiJian)</br>
